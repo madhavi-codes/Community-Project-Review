@@ -13,9 +13,9 @@ Project Materials
 Team Members
 
 - Laasya R.
-- Araveti Chandana
-- Meda Nandini
 - Revanuru Madhavi
+
+  
 
 Purpose
 
